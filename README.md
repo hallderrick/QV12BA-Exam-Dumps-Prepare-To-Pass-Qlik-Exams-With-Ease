@@ -1,0 +1,1 @@
+# QV12BA-Exam-Dumps-Prepare-To-Pass-Qlik-Exams-With-Ease
